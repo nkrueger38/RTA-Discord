@@ -1,2 +1,2 @@
 # RTA-Discord
-# WTF is this?
+# Comment - RTA MFers
